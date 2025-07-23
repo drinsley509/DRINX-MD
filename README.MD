@@ -50,7 +50,7 @@ Drinx-MD is a easy to use WhatsApp bot.
 
 * [🧑‍💻 Follow Drinx-mD Whatsapp Channel🧑‍💻](https://whatsapp.com/channel/0029VbBEGYMGJP8NpOJ6eS2A)
 * [🧑‍💻 Join Drinx-md Group 🧑‍💻](https://t.me/DRINX_MD)
-* [✅ Join Public Group ⚡]()
+* [✅ Join Public Group ⚡](https://chat.whatsapp.com/IdL4VKAZxH2JoJBywlhzxx?mode=r_t)
 
   <a><img src='https://i.imgur.com/LyHic3i.gif'/></a><a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
